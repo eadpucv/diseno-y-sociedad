@@ -1,8 +1,6 @@
 # Diseño y Sociedad
 
-||
-|:--:| 
-|![Afiche](cover.jpg)|
+![Afiche](cover.jpg)
 
 **Transcripciones de los audios del seminario realizado el 27 de Noviembre de 2015 en la e[ad] Escuela de Arquitectura y Diseño, Pontificia Universidad Católica de Valparaíso.**
 
