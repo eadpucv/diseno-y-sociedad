@@ -26,3 +26,41 @@
  | Agua mineral 500 ml | 3 u | $580 c/u|
  |  | Total | $35886 |
  
+
+## Preparación
+
+
+### Crostinis
+
+
+Pan Baguette
+
+Aceite
+
+Sal
+
+Ají de color
+
+Pimienta
+
+Precalentar horno a fuego medio. Cortar baguette de manera diagonal, obteniendo cortes ovalados. De cada pan salen unos 30 cortes. Cubrir lata con alusa, poner los panes uno al lado del otro y rociarlos con aceite. Se espolvorean con sal, ají de color y pimienta. Se ponen en el horno hasta que se doren levemente, por unos 6 a 8 minutos. 
+
+
+### Ceviche de Quínoa
+
+Por cada taza de quínoa:
+
+1 cebolla morada
+
+1 pimentón
+
+Puñado cilantro picado
+
+Jugo 8 limones
+
+Sal y pimienta a gusto
+
+Remojar y lavar quínoa. Echar a cocer a fuego lento en agua, 2 tazas de agua por una de quínoa. Cuando esté transparente con un borde blanco, sacar del fuego y botar agua restante inmediatamente. Dejar remojando en jugo de limón con el resto de los ingredientes picados. Dejar reposar en frío.
+
+ 
+ 
