@@ -46,6 +46,7 @@ Pimienta
 Precalentar horno a fuego medio. Cortar baguette de manera diagonal, obteniendo cortes ovalados. De cada pan salen unos 30 cortes. Cubrir lata con alusa, poner los panes uno al lado del otro y rociarlos con aceite. Se espolvorean con sal, ají de color y pimienta. Se ponen en el horno hasta que se doren levemente, por unos 6 a 8 minutos. 
 
 
+
 ### Ceviche de Quínoa
 
 Por cada taza de quínoa:
@@ -64,7 +65,7 @@ Remojar y lavar quínoa. Echar a cocer a fuego lento en agua, 2 tazas de agua po
 
 ### Hummus
 
-Para el Tahini:
+**Para el Tahini:**
 
 100 grs. sésamo tostado
 
@@ -72,7 +73,7 @@ Para el Tahini:
 
 Moler sésamo en la procesadora hasta que tenga apariencia de migajas. Añadir el aceite de a poco y seguir mezclando, hasta lograr un consistencia suave, como de mantequilla de maní.
 
-Para el Hummus:
+**Para el Hummus:**
 
 1 kilo de garbanzos
 
