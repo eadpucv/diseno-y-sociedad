@@ -92,5 +92,5 @@ jugo de 3 limones
 Lavar garbanzos y dejar remojando toda la noche. Echar a cocer en agua fría durante 45 minutos a fuego fuerte y luego a fuego lento por 5 minutos. Reservar el jugo. Poner todos los ingredientes en la procesadora hasta formar una pasta.
 
 
- 
+
  
