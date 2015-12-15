@@ -7,5 +7,4 @@
 * [Dámaris Sepúlveda](04-damaris-sepulveda.md)
 * [Rodrigo Morales](05-rodrigo-morales.md)
 * [Reflexión](06-reflexion.md)
-   * Ágape
 
