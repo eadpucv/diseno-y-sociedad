@@ -62,5 +62,25 @@ Sal y pimienta a gusto
 
 Remojar y lavar quínoa. Echar a cocer a fuego lento en agua, 2 tazas de agua por una de quínoa. Cuando esté transparente con un borde blanco, sacar del fuego y botar agua restante inmediatamente. Dejar remojando en jugo de limón con el resto de los ingredientes picados. Dejar reposar en frío.
 
+### Hummus
+
+Para el Tahini
+100 grs. sésamo tostado
+4 cucharadas aceite
+
+Moler sésamo en la procesadora hasta que tenga apariencia de migajas. Añadir el aceite de a poco y seguir mezclando, hasta lograr un consistencia suave, como de mantequilla de maní.
+
+Para el Hummus
+1 kilo de garbanzos
+6 dientes de ajo
+jugo de 3 limones
+15 cucharadas de aceite de oliva
+10 cucharaditas de tahini
+3 cucharaditas de sal
+½ taza jugo de garbanzos
+
+Lavar garbanzos y dejar remojando toda la noche. Echar a cocer en agua fría durante 45 minutos a fuego fuerte y luego a fuego lento por 5 minutos. Reservar el jugo. Poner todos los ingredientes en la procesadora hasta formar una pasta.
+
+
  
  
