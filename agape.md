@@ -114,6 +114,7 @@ Lavar garbanzos y dejar remojando toda la noche. Echar a cocer en agua fría dur
 
 El montaje se realizó en el patio de primero de arquitectura. Una vez finalizadas las presentaciones se invitó a salir al patio, donde se unió otra gente a disfrutar de la comida y bebidas ofrecidas por la organización del Seminario.
 
+![](http://www.ead.pucv.cl/wp-content/uploads/2015/12/IMG_2541-850x567.jpg)
 
 
 
