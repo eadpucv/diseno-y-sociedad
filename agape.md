@@ -45,6 +45,7 @@ Pimienta
 
 Precalentar horno a fuego medio. Cortar baguette de manera diagonal, obteniendo cortes ovalados. De cada pan salen unos 30 cortes. Cubrir lata con alusa, poner los panes uno al lado del otro y rociarlos con aceite. Se espolvorean con sal, ají de color y pimienta. Se ponen en el horno hasta que se doren levemente, por unos 6 a 8 minutos. 
 
+![](DSC_0054.JPG) 
 
 
 ### Ceviche de Quínoa
@@ -62,6 +63,13 @@ Jugo 8 limones
 Sal y pimienta a gusto
 
 Remojar y lavar quínoa. Echar a cocer a fuego lento en agua, 2 tazas de agua por una de quínoa. Cuando esté transparente con un borde blanco, sacar del fuego y botar agua restante inmediatamente. Dejar remojando en jugo de limón con el resto de los ingredientes picados. Dejar reposar en frío.
+
+![](DSC_0032.JPG)
+
+![](DSC_0033.JPG)
+
+![](DSC_0030.JPG)
+
 
 ### Hummus
 
@@ -91,9 +99,23 @@ jugo de 3 limones
 
 Lavar garbanzos y dejar remojando toda la noche. Echar a cocer en agua fría durante 45 minutos a fuego fuerte y luego a fuego lento por 5 minutos. Reservar el jugo. Poner todos los ingredientes en la procesadora hasta formar una pasta.
 
+
 ![](DSC_0006.JPG) 
+
  ![](DSC_0009.JPG)
+ 
  ![](DSC_0045.JPG)
+ 
+
+
+
+
+## Montaje Ágape
+
+El montaje se realizó en el patio de primero de arquitectura. Una vez finalizadas las presentaciones se invitó a salir al patio, donde se unió otra gente a disfrutar de la comida y bebidas ofrecidas por la organización del Seminario.
+
+
+
 
 
 
